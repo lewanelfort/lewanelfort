@@ -1,4 +1,4 @@
-# Hi, I'm Lewan Reymond! 🇧🇷 🇯🇵
+# Hi, I'm Lewan Elfort! 🇧🇷 🇯🇵
 
 ### 🚀 Aspiring Software Developer | Python & AI Student
 
